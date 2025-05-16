@@ -46,4 +46,4 @@ Feel free to fork the repo, suggest improvements, or modify the design to add yo
 
 Happy coding! 🚀
 
-## I don't see a index.html file or a css stylesheet in here or other files like the youtube video shows, only the README.md
+💞💖💯👍❣️![alt text](image.png) yuh
